@@ -3,7 +3,7 @@
 XTB schenkt neuen Anlegern aus Deutschland eine Aktie im Wert von 52 €. Der Prozess zur kostenlosen Aktie ist unkompliziert.
 
 <h2>So erhalten Sie die Gratis-Aktie</h2>
-Besuchen Sie XTB über diesen speziellen Link: [https://forbino.com/de/xtb-promo-code/](https://forbino.com/de/kostenlose-aktie-von-xtb/).  
+Besuchen Sie XTB über diesen speziellen Link: https://forbino.com/de/kostenlose-aktie-von-xtb/.  
 Eröffnen Sie ein Konto, durchlaufen Sie die Verifizierung inkl. eines kurzen Fragebogens und tätigen Sie eine beliebige Einzahlung. Wenn Sie alle Bedingungen erfüllen, wird Ihnen die Gratis-Aktie automatisch auf Ihr Handelskonto gutgeschrieben.
 
 <h2>Bedingungen für den Erhalt der Mercedes-Benz-Aktie</h2>
